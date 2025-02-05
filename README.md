@@ -1,16 +1,14 @@
-## Hi there 👋
+# Top 8 Ways to Earn Passive Income Online in 2025
 
-<!--
-**Digitalhub277/digitalhub277** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+In 2025, there are several strategies to generate passive income online. Here are **8 popular methods**:
 
-Here are some ideas to get you started:
+1. **Affiliate Marketing**  
+   Promote products or services on your website, blog, or social media channels. You earn a commission each time someone makes a purchase through your referral link.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+2. **Dropshipping & E-Commerce**  
+   Start an online store without managing inventory. With dropshipping, suppliers ship products directly to customers, allowing you to focus on marketing and customer engagement.
+
+{for more info}{https://www.instagram.com/digitalhub277/}
+
+
+
